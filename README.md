@@ -2,9 +2,8 @@
 
 🏳️‍⚧️ Proud USMC Veteran 🇺🇸 | Saxophonist-in-Training 🎷 | Coffee Aficionado ☕
 
-TAKE EVERYTHING FROM ELON MUSK, DONALD TRUMP, AND THEIR GOONS!!! 🖤🖤🖤
-
 Hey, Welcome to my little corner of GitHub, where I tinker, code, and caffeinate my way through life.
+
 💖 About Me
 
     💻 Digital sorceress ✨ working on cool projects (or just vibing).
